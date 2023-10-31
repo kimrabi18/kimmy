@@ -1,1 +1,1 @@
-hi everyone i'm kim rabi from philippines.
+hi everyone i'm Kim from philippines.
